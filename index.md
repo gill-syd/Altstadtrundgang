@@ -98,3 +98,73 @@ Haus zum Schwert Im 16 Jahrhundert Gasthof 1615 Besitz von Kaspar Müller, Neuba
 
 Rechteckiger, zirka 60 cm tiefer, zum Achteck (3.12 auf 2.15 m) ab- geschrägter Trog aus Solothurner Muschelkalk. An der Breitseite stand 1860 noch ein Sudeltrog. Flickstel- len für den früheren Rost zeigen, dass der Brunnenstock mit der Bron- zeröhre an der linken Schmalseite stand. Er ist wie der Trog aus einem einzigen Stein gehauen und 2.5m. hoch. Der Brunnen diente auch einer Küferel am Platz. Hier wurden Wein- und Mostfässer gespült. Der dabei entstehende Geruch gab wohl dem Platz den Namen.
 [nach oben](#beschreibung-des-rundganges)
+
+## Evangeliche Stadtkirche
+[nach oben](#beschreibung-des-rundganges)
+
+## Brunnen in der Freiestrasse
+[nach oben](#beschreibung-des-rundganges)
+
+## Luzernerhaus
+[nach oben](#beschreibung-des-rundganges)
+
+## Gachnager Stock
+[nach oben](#beschreibung-des-rundganges)
+
+## Bernerhaus "Zur Gedult"
+[nach oben](#beschreibung-des-rundganges)
+
+## Palme
+[nach oben](#beschreibung-des-rundganges)
+
+## Krone
+[nach oben](#beschreibung-des-rundganges)
+
+## Redinghaus
+[nach oben](#beschreibung-des-rundganges)
+
+## Brunnen beim Redinghaus
+[nach oben](#beschreibung-des-rundganges)
+
+## Stadtkirche St.Nikolaus
+[nach oben](#beschreibung-des-rundganges)
+
+## Ehemaliges Gasthaus zum Hirschen
+[nach oben](#beschreibung-des-rundganges)
+
+## Zürcherhaus
+[nach oben](#beschreibung-des-rundganges)
+
+## Rüpplinsche Kaplanei
+[nach oben](#beschreibung-des-rundganges)
+
+## Goldener Adler
+[nach oben](#beschreibung-des-rundganges)
+
+## Meitlibrunnen
+[nach oben](#beschreibung-des-rundganges)
+
+## Brunnen an der Promenade
+[nach oben](#beschreibung-des-rundganges)
+
+## Baliere
+[nach oben](#beschreibung-des-rundganges)
+
+## Staatsarchiv und Altes Zeughaus
+[nach oben](#beschreibung-des-rundganges)
+
+## Verwaltungsgebäude
+[nach oben](#beschreibung-des-rundganges)
+
+## Kantonsbibliothek und ehemaliges Obergericht
+[nach oben](#beschreibung-des-rundganges)
+
+## Mädchenschule
+[nach oben](#beschreibung-des-rundganges)
+
+## Mädchenschule
+[nach oben](#beschreibung-des-rundganges)
+
+## Mädchenschule
+[nach oben](#beschreibung-des-rundganges)
+
