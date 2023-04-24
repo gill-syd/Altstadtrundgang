@@ -226,14 +226,14 @@ Das Guggenhürli liegt im Langdorf, auf einer kleinen Kuppe über dem gleichnami
 [nach oben](#beschreibung-des-rundganges)
 
 ## Kantonsschule Frauenfeld
-Am 14. November 1853 wurde die neue Kantonsschule feierlich eröffnet. Stadtpräsident, Rektor, Erziehungsratspräsident und Regierungsratspräsident hielten Ansprachen und übergaben das Gebäude seiner Bestimmung. Im neuen Schulhaus befanden sich nicht nur die Unterrichtszimmer, sondern auch die Wohnungen von Rektor und Konviktführer, der Schlafsaal für 30 Schüler und weitere Räume wie Speisesaal, Vorratskammer und Arbeitsräume für die Konviktschüler. Unterrichtet wurden im ersten Semester 81 Schüler, davon wohnten 18 im Konvikt. Man teilte die Schüler nach ihrem Alter ungefähr in drei Gymnasial- und vier Industrieklassen ein. Das erste Schuljahr wurde mit sechs Lehrkräften
+Am 14. November 1853 wurde die neue Kantonsschule feierlich eröffnet. Stadtpräsident, Rektor, Erziehungsratspräsident und Regierungsratspräsident hielten Ansprachen und übergaben das Gebäude seiner Bestimmung. Im neuen Schulhaus befanden sich nicht nur die Unterrichtszimmer, sondern auch die Wohnungen von Rektor und Konviktführer, der Schlafsaal für 30 Schüler und weitere Räume wie Speisesaal, Vorratskammer und Arbeitsräume für die Konviktschüler. Unterrichtet wurden im ersten Semester 81 Schüler, davon wohnten 18 im Konvikt. Man teilte die Schüler nach ihrem Alter ungefähr in drei Gymnasial- und vier Industrieklassen ein. Das erste Schuljahr wurde mit sechs Lehrkräfteneröffnet. Gründungsrektor wurde Dekan Ulrich Benker aus Diessenhofen, erster Konviktführer Johann Jakob Sulzberger, der von der Stadtschule Frauenfeld kam. Nachdem der Lehrunterricht aufgenommen wurde, stellte man fest, dass der Deutsch- und Geschichtslehrer für die oberen Klassen vergessen gegangen war. Dafür wählte die Behörde aus 69 Bewerbungen den jungen Stuttgarter Theologen Rudolf Menzel aus, der bereits auf Neujahr angestellt wurde.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Home
 fdljs kölkjhös fdsdgvalökjh fgsdlöjk 
 [nach oben](#beschreibung-des-rundganges)
 
-eröffnet. Gründungsrektor wurde Dekan Ulrich Benker aus Diessenhofen, erster Konviktführer Johann Jakob Sulzberger, der von der Stadtschule Frauenfeld kam. Nachdem der Lehrunterricht aufgenommen wurde, stellte man fest, dass der Deutsch- und Geschichtslehrer für die oberen Klassen vergessen gegangen war. Dafür wählte die Behörde aus 69 Bewerbungen den jungen Stuttgarter Theologen Rudolf Menzel aus, der bereits auf Neujahr angestellt wurde.
+
 
 ## Die Tagsatzung in Frauenfeld
 
