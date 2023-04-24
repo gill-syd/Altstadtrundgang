@@ -41,7 +41,7 @@ Begeben Sie sich auf einen Rundgang durch die Altstadt. Lernen Sie unsere Stadt 
 29. [Verwaltungsgebäude](#verwaltungsgebäude)
 30. [Kantonsbibliothek und ehemaliges Obergericht](#kantonsbibliothek-und-ehemaliges-obergericht)
 31. [Obergericht und Botanischer Garten](#obergericht-und-botanischer-garten)
-32. [Ehemals "Thurgauer Zeitung"](#ehemals-"thurgauer-zeitung")
+32. [Ehemals Thurgauer Zeitung](#ehemals-thurgauer-zeitung)
 33. [Regierungsgebäude des Kantons Thurgau](#regierungsgebäude-des-kantons-thurgau)
 34. [Guggenhürli](#guggenhürli)
 35. [Die Tagsatzung in Frauenfeld](#die-tagsatzung-in-frauenfeld)
@@ -207,7 +207,7 @@ Erbaut 1847 bis 1851 von der Bürgergemeinde Frauenfeld durch Johann Joachim Bre
 1865 wurde für die Kantonsschule ein Lehrgarten angelegt. Das Gebäude diente als erweiterung der Kantonsschule, nach dem Umzug der Schule in den Neubau an der Ringstrasse 1911 blieb es Konvikt für auswärtige Schüler. 2003 zog nach einer Renovation das Obergericht ein. Der in Vergessenheit geratene Garten wurde wiederhergestellt, der historische Lustpavillon in der Mitte des Parks renoviert. Alte, wertvolle Bäume erhilten Pflege, andere Sorten wurden frisch gepflanzt. Täglich geöffnet von 8 bis 18 Uhr, im Sommer bis 20 Uhr.
 [nach oben](#beschreibung-des-rundganges)
 
-## Ehemals "Thurgauer Zeitung"
+## Ehemals Thurgauer Zeitung
 
 Mitteltrakt erbaut 1836 bis 18 39 für Christian Beyel als Zeitungs- und Buchdruckerei. Nordflügel 1870 und Südflügel 1880 für Jacques Huber. Magazin und Buchbinderei an der Staubeggstrasse 1871 und 1891 angefügt. Später weitere Um- und Aubauten. Nach dem Erlöschen der Firma Huber & Co. 2011 erfolgte der Rückbau auf den Kernbestand. Im dahinterliegenden Park entstand Stadtvillen mit Eigentums- und Mietwohnungen.
 [nach oben](#beschreibung-des-rundganges)
