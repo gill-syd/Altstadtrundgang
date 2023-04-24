@@ -16,7 +16,7 @@ Die Karte [als eigene Seite](Altstadtrundgang.html).
 8. [Mädchenschule](#mädchenschule)
 9. [Haus zum Schwert](#haus-zum-schwert)
 10. [Brunnen zum Sauren Winkel](#brunnen-zum-sauren-winkel)
-11. [Evangelische Stadtkirche](#evangelische-Stadtkirche)
+11. [Evangelische Stadtkirche](#evangelische-stadtkirche)
 12. [Brunnen an der Freiestrasse](#brunnen-an-der-freiestrasse)
 13. [Luzernerhaus](#luzernerhaus)
 14. [Gachnager Stock](#gachnager-stock)
@@ -100,33 +100,55 @@ Rechteckiger, zirka 60 cm tiefer, zum Achteck (3.12 auf 2.15 m) ab- geschrägter
 [nach oben](#beschreibung-des-rundganges)
 
 ## Evangeliche Stadtkirche
+
+Erbaut 1927 bis 1929. Erste evangelische Kirche an der gleichen Stelle erbaut 1644/45. 1927 bis auf den Turm abgebrochen Neubau nach Entwurf von Hans Wiesmann, Müllheim/Köln Das 1930 in der Chorwand eingefügte Glasfenster von: Augusto Giacometti (1877-1947)) zeigt über den unteren, abstrakt ornamental gestalteten Bildquadraten Szenen aus dem Leben Christi. Orgel der Firma Orgelbau Metzler, Dietikon ZH, von 1985.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Brunnen in der Freiestrasse
+
+Der mit Ausdehnungen von 4.90m auf 2 45m und einer Höhe von 1m aus einem Mägenwiler Muschelkalk Monolithen gehauene grösste Brunnentrog der Altstadt wurde wohl, wie der Brunnen beim Redinghaus, etwa um 1840/1860, noch vor der Einführung der städtischen Wasserversorgung (1885) aufgestellt.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Luzernerhaus
+
+Erbaut 1771 nach dem ersten Stadtbrand für Schultheiss Nikolaus Rogg Absteigequartier der Luzerner Tagsatzungsbeamten, 1843 Kauf durch den Kanton TG. 1868 Privatbesitz 1885 Sparkasse der Bürgergemeinde Frauenfeld. 1893 Kantonalbank 1919 Kauf durch die Thurgauische Museumsgesellschaft. Thurgauisches Museum 1924-1960. Seit 1958 im Besitz des Kantons. Seit 1972 Natur museum. Daran arschliessend ehe maliges Kantonalgefängnis, heute Museum für Archäologie Thurgau, und Wirtschaft «Zum Goldenen Becher.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Gachnager Stock
+
+Erbaut 1771 nach dem ersten Stadtbrand für Landrichter Sebastian Locher. Vorgängerbau, bewohnt von den Herren von Gachnang, 1407 im Appenzellerkrieg zerstört, nach 1434 wieder aufgebaut, abgebrannt 1771. Besitz der Familie Locher 1538 bis 1817. Vor diesem Haus nahm der Landvogt alle zwei Jahre die Eidesleistungen der Bewohner benachbarter Gemeinden entgegen.
+
+
 [nach oben](#beschreibung-des-rundganges)
 
 ## Bernerhaus "Zur Gedult"
+
+Erbaut 1771 nach dem ersten Stadtbrand für die Geschwister Mörikofer. Absteigequartier der Berner Tagsatzungsgesandten. Bern lieferte die Pläne und half beim Wiederaufbau nach dem Brand. Eigentum der Evangelischen Landeskirche des Kantons Thurgau.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Palme
+
+Erbaut 1771 nach dem ersten Stadtbrand für Alberic Locher von Freudenberg. Absteigequartier der Tagsatzungsgesandten aus Uri, Schwyz, Unterwalden, Zug, Appenzell-Innerrhoden sowie der Fürstabtei St. Gallen. 1817 bis 1833 Dépendance der benachbarten Krone. 1910 Kauf durch die Thurgauische Hypothekenbank, 1917 Schweizerische Kreditanstalt, 1971 Aussenrenovation und völliger Neubau im Innern.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Krone
+
+Erbaut 1771 nach dem ersten Stadtbrand für Landweibel Rogg. Schon im 16. Jahrhundert als Gasthaus erwähnt. Absteigequartier der Tagsatzungsgesandten aus katholisch Glarus. Hotel bis 1867, seit dem 18. Jahrhundert Absteigeort zahlreicher prominenter Personen.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Redinghaus
+
+Erbaut 1771 nach dem ersten Stadtbrand. Auch alte Landeskanzlei oder Landschreiberei genannt. Im Besitz der Familie Reding von Biberegg, thurgauische Landschreiber 1628 bis 1798. 1807 bis 1865 erstes Regierungsgebäude des Kantons Thurgau. Die Wappenschilde der Familie Reding an der Fassade wurden darum durch Thurgauer Wappen ersetzt. Ab 1868 Privatbesitz, seit 2006 im Eigentum der Stadt Frauenfeld.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Brunnen beim Redinghaus
+
+Die prächtige ovale 4.6m lange und 3.3m breite muschelartige Brunnenschale aus Mägenwiler Muschelkalk ist mit dem gemauerten Sockel fast 90cm hoch.  Monolithe für einen solchen Trog wurden im Steinbruch gehauen, auf die benötigte Tiefe (hier 45 cm) ausgehöhlt und per Pferdefuhrwerk, wahrscheinlich zusammen mit dem Stock, über mehrere Tage nach Frauenfeld gebracht.  Passend zum Trog hat der 3,7 m hohe Boden zwei bronzene Brunnenrohre, die von Schmiedeeisen gehalten werden.  Es wird noch heute von einigen „Gautschete“ verwendet, um eine Ausbildung im grafischen Handwerk zu absolvieren.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Stadtkirche St.Nikolaus
+  
+Erbaut zwischen 1904 und 1906. Vorgängerbauten: Erste Kapelle um 1286, unterschiedlich erweitert.  1771 beim ersten Stadtbrand zerstört, dann wieder aufgebaut, 1904 abgerissen. Heutiges Gebäude von Albert Rimli.  Restaurierung von 1967 bis 1969. Altarbilder von Karl Manninger, Metzler-Orgel von 1969. Gesamtrenovierung außen und innen 2014-2016.  Anpassungen im Bereich des Chores und des zentralen Taufbeckens.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Ehemaliges Gasthaus zum Hirschen
@@ -159,12 +181,16 @@ Rechteckiger, zirka 60 cm tiefer, zum Achteck (3.12 auf 2.15 m) ab- geschrägter
 ## Kantonsbibliothek und ehemaliges Obergericht
 [nach oben](#beschreibung-des-rundganges)
 
-## Mädchenschule
+## Obergericht und Botanischer Garten
 [nach oben](#beschreibung-des-rundganges)
 
-## Mädchenschule
+## Ehemals "Thurgauer Zeitung"
 [nach oben](#beschreibung-des-rundganges)
 
-## Mädchenschule
+## Regierungsgebäude des Kantons Thurgau
 [nach oben](#beschreibung-des-rundganges)
+
+## Guggenhürli
+[nach oben](#beschreibung-des-rundganges)
+
 
