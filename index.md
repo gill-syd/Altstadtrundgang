@@ -24,7 +24,7 @@ Begeben Sie sich auf einen Rundgang durch die Altstadt. Lernen Sie unsere Stadt 
 12. [Brunnen an der Freiestrasse](#brunnen-an-der-freiestrasse)
 13. [Luzernerhaus](#luzernerhaus)
 14. [Gachnager Stock](#gachnager-stock)
-15. [Bernerhaus "Zur Gedult"](#bernerhaus-zur-gedul)
+15. [Bernerhaus Zur Gedult](#bernerhaus-zur-gedul)
 16. [Palme](#palme)
 17. [Krone](#krone)
 18. [Redinghaus](#redinghaus)
@@ -45,7 +45,7 @@ Begeben Sie sich auf einen Rundgang durch die Altstadt. Lernen Sie unsere Stadt 
 33. [Regierungsgebäude des Kantons Thurgau](#regierungsgebäude-des-kantons-thurgau)
 34. [Guggenhürli](#guggenhürli)
 35. [Die Tagsatzung in Frauenfeld](#die-tagsatzung-in-frauenfeld)
-36. [ Die Stadtbrände von 1771 und 1778](#die-stadtbrände-von-1771-und-1778)
+36. [Die Stadtbrände von 1771 und 1778](#die-stadtbrände-von-1771-und-1778)
 
 ## Schloss Frauenfeld
 
@@ -127,7 +127,7 @@ Erbaut 1771 nach dem ersten Stadtbrand für Landrichter Sebastian Locher. Vorgä
 
 [nach oben](#beschreibung-des-rundganges)
 
-## Bernerhaus "Zur Gedult"
+## Bernerhaus Zur Gedult
 
 Erbaut 1771 nach dem ersten Stadtbrand für die Geschwister Mörikofer. Absteigequartier der Berner Tagsatzungsgesandten. Bern lieferte die Pläne und half beim Wiederaufbau nach dem Brand. Eigentum der Evangelischen Landeskirche des Kantons Thurgau.
 [nach oben](#beschreibung-des-rundganges)
