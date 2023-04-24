@@ -161,39 +161,59 @@ Erbaut 1771 nach dem ersten Stadtbrand anstelle dreier Häuser für Ratsherr Gab
 [nach oben](#beschreibung-des-rundganges)
 
 ## Rüpplinsche Kaplanei
+Erbaut 1771 nach dem ersten Stadtbrand. Pfrundhausv fpr einen katholischen Priester, gestiftet 1580 von Joachim Joner, genannt Rüpplin. Eigentum der Rüpplinschen Stiftung. Renovationv 1985-1986 durch STiftung und katholische Kirchengemeinde Frauenfeld. Sehenswerter barocker Garten mit zwei Pavillions auf der Nordseite gegen die Grabenstrasse.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Goldener Adler
+Erbaut vor 1454. Älteste datierbare Balken von etwa 1454 bis 1628. Oftmals verändert. 1454 bis 1628 im Besitz der Familie Locher. Öfters Wohnsitz des SChultheissen der  Stadt. Einziges Haus in der Zürcherstrasse das von beiden Stadtbränden (1771,1788) verschont blieb. Restaurierung 1988.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Meitlibrunnen
+1953 in der Kirchengasse erstellt, als ERsatz für einen 1948 entfrenten Brunnen, nachdem die Idee, hier Parkplätze zu schaffen, verworfen wurde. Bildhauer Walter Knecht von SChaffhausen nannte den Brunnen mit dem singenden Mädchen "Volkslied", im Volksmund wurde er zum "Meitlibrunnen". Rechteckiger, 65cm hoher Trog von 2.25m auf 1.37m aus Muschelkalk. 1.5m hoher Stock mit Bronzeplastik und Messingröhre.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Brunnen an der Promenade
+Schön gestaltetes Brunnenbecken mit Sudeltrog. Im grossen Trog musste das WAsser für die Tiere und den Hausgebrauch sauber bleiben, im Suddeltrog konnten Gartengeräte oder die Schuhe gewaschen werden. Am grossen Trog ( Solothurner Muschelkalkmonolith 3.3m auf 1.9m) die Jahreszahl 1871. Der kleinere Sudeltrog ist 14cm weniger hoch und wird wie der grosse Trog aus dem 1.8m hohen achteckigen Stock gespiesen.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Baliere
+Erbaut 1555-1557 als Wohn- und Gemeinschaftshaus für Hans Hoffmann, Balierer oder Schwertfeger von Nürnberg, zugezogen von Lindau. Hoffmann erhielt 1552 von der Eidg. Tagsatzung die Niederlassungsbewilligung und gleichzeitig die ERlaubnis zur Ausübung seines Berufes als Waffenschmied. Im gebiet der Baliere entwickelte sich seit etwa 1500 ein Gewerbequartier mit Mühle, Färberei, Bleiche und Gerberei. Die Werkstatt Hoffmanns befand sich auff dem Areal der heutigen Gerberei-Liegenschaft Kappler, die von einem Fabrikkanal energiemässig erschlossen war. Zwei Wasserräder betrieben die Anlagen der Waffenschmiede.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Staatsarchiv und Altes Zeughaus
+
+Der steilgieblige Massivbau wurde 1819/20 als erster Neubau des jungen Kantons Thurgau durch Johann Sulzberger (1762-1841) erstellt. Im Massivbau wurde die Mannschaftsausrüstung sowie das Korpsmaterial der ersten Thurgauer Miliz gelagert. 1913-1916 fügten die Architekten Brenner & Stuz einen Verbindungsbau zwichen das Alte Zeughaus und den ältesten Teil, die sogenannte "alte Farb" an der Zeughausstrasse- Dadurch entstand ein Innenhof. Im Brennerbau ist heute das Staatsarchiv untergebracht. Das Alte Zeughazs dient dem Historichen Museum als Austellungsraum.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Verwaltungsgebäude
+
+Erbaut 1847 bis 1851 von der Bürgergemeinde Frauenfeld durch Johann Joachim Brenner. 1853 bis 1911 Thurgauerische kantonsschule. Seit 1912 Bibliothek und 1912 bis 2003 Obergericht des kantons Thurgau.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Kantonsbibliothek und ehemaliges Obergericht
+
+
+Erbaut 1847 bis 1851 von der Bürgergemeinde Frauenfeld durch Johann Joachim Brenner. 1853 bis 1911 Thurgauerische kantonsschule. Seit 1912 Bibliothek und 1912 bis 2003 Obergericht des kantons Thurgau.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Obergericht und Botanischer Garten
+
+1865 wurde für die Kantonsschule ein Lehrgarten angelegt. Das Gebäude diente als erweiterung der Kantonsschule, nach dem Umzug der Schule in den Neubau an der Ringstrasse 1911 blieb es Konvikt für auswärtige Schüler. 2003 zog nach einer Renovation das Obergericht ein. Der in Vergessenheit geratene Garten wurde wiederhergestellt, der historische Lustpavillon in der Mitte des Parks renoviert. Alte, wertvolle Bäume erhilten Pflege, andere Sorten wurden frisch gepflanzt. Täglich geöffnet von 8 bis 18 Uhr, im Sommer bis 20 Uhr.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Ehemals "Thurgauer Zeitung"
+
+Mitteltrakt erbaut 1836 bis 18 39 für Christian Beyel als Zeitungs- und Buchdruckerei. Nordflügel 1870 und Südflügel 1880 für Jacques Huber. Magazin und Buchbinderei an der Staubeggstrasse 1871 und 1891 angefügt. Später weitere Um- und Aubauten. Nach dem Erlöschen der Firma Huber & Co. 2011 erfolgte der Rückbau auf den Kernbestand. Im dahinterliegenden Park entstand Stadtvillen mit Eigentums- und Mietwohnungen.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Regierungsgebäude des Kantons Thurgau
+
+Erbaut 1866 bis 1868 von Joachim Brenner. 1935/36 Anbau des Südflügels durch Albert Brenner. Im Treppenhaus Wappenscheiben der Eidgenössischen Stände 1960. 2013/2014 Gesamtrenovation und Umgestaltung des ehemaligen Archivflügels an der Staubeggstrasse durch die Architekten Staufer & Hasler, Frauenfeld.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Guggenhürli
+
+Das Guggenhürli liegt im Langdorf, auf einer kleinen Kuppe über dem gleichnamigen Rebberg. Das ehemalige Sommer- und Rebhaus wurde um 1580 von Hans Joachim Rüpplin, Vogt des Reichenauischen Amtes Frauenfeld, erbaut. Von 1838 bis 1871 war die Liegenschaft im Besitz von Minister Dr. Johann Conrad Kern (1808-1888), u.a. Redaktor der Bundesverfassung von 1848 und Schweizerischer Gesandter in Paris. 1966 übernahm eine Genossenschaft das Guggenhürli. Sie renovierte den Bau und legte einen Rebberg an.
 [nach oben](#beschreibung-des-rundganges)
 
 
