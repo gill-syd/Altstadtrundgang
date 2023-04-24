@@ -152,9 +152,12 @@ Erbaut zwischen 1904 und 1906. Vorgängerbauten: Erste Kapelle um 1286, untersch
 [nach oben](#beschreibung-des-rundganges)
 
 ## Ehemaliges Gasthaus zum Hirschen
+
+Erbaut 1771 nach dem ersten Stadtbrand für Melchior neuwiler. Absteigequaartiwe der Tagsatzungsgesandten von reformierten Glarus, St.Gallen und Schaffhausen. Seit 1890 Eigentum der Katholischen Kirchengemeinde Frauenfeld.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Zürcherhaus
+Erbaut 1771 nach dem ersten Stadtbrand anstelle dreier Häuser für Ratsherr Gabriel Neuwiler. 1780 bis 1798 Kanzlei der Zürcher Tagsatzungsgesandten. 1838 bis 853 Wohnhaus von Minister Johann Conrad Kern.
 [nach oben](#beschreibung-des-rundganges)
 
 ## Rüpplinsche Kaplanei
