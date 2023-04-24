@@ -4,9 +4,9 @@
 
 Die Karte [als eigene Seite](Altstadtrundgang.html).
 
-Begeben Sie sich auf einen Rundgang durch die Altstaft. Lernen Sie unsere Stadt etwas näher kennen, tauchen Sie ein in die Vergangenheit der Stadt. Los geht's beim Warzeichen, dem Schloss Frauenfeld
+Begeben Sie sich auf einen Rundgang durch die Altstadt. Lernen Sie unsere Stadt etwas näher kennen, tauchen Sie ein in die Vergangenheit der Stadt. Los geht's beim Wahrzeichen, dem Schloss Frauenfeld
 
-**Übrigens:**  Versierte Stadtführerinnen und Stadtführer begleiten Sie gerne auf einem Rundgang durch die Frauenfelder Altstadt. Lassen Sie sich Hintergründe über die Architektur erklären und lustige Anekdoten aus naher und nicht alzu ferner Zeit erzählen Altstadtführungen und weiter spannende Führungen können bei Regio Frauenfeld Tourismus gebucht werden.
+**Übrigens:**  Versierte Stadtführerinnen und Stadtführer begleiten Sie gerne auf einem Rundgang durch die Frauenfelder Altstadt. Lassen Sie sich Hintergründe über die Architektur erklären und lustige Anekdoten aus naher und nicht allzu ferner Zeit erzählen Altstadtführungen und weiter spannende Führungen können bei Regio Frauenfeld Tourismus gebucht werden.
 
 ## Beschreibung des Rundganges
 
@@ -44,6 +44,7 @@ Begeben Sie sich auf einen Rundgang durch die Altstaft. Lernen Sie unsere Stadt 
 32. [Ehemals "Thurgauer Zeitung"](#ehemals-"thurgauer-zeitung")
 33. [Regierungsgebäude des Kantons Thurgau](#regierungsgebäude-des-kantons-thurgau)
 34. [Guggenhürli](#guggenhürli)
+35. [Die Tagsatzung in Frauenfeld](#die-tagsatzung-in-frauenfeld)
 
 ## Schloss Frauenfeld
 
@@ -218,6 +219,11 @@ Erbaut 1866 bis 1868 von Joachim Brenner. 1935/36 Anbau des Südflügels durch A
 ## Guggenhürli
 
 Das Guggenhürli liegt im Langdorf, auf einer kleinen Kuppe über dem gleichnamigen Rebberg. Das ehemalige Sommer- und Rebhaus wurde um 1580 von Hans Joachim Rüpplin, Vogt des Reichenauischen Amtes Frauenfeld, erbaut. Von 1838 bis 1871 war die Liegenschaft im Besitz von Minister Dr. Johann Conrad Kern (1808-1888), u.a. Redaktor der Bundesverfassung von 1848 und Schweizerischer Gesandter in Paris. 1966 übernahm eine Genossenschaft das Guggenhürli. Sie renovierte den Bau und legte einen Rebberg an.
+[nach oben](#beschreibung-des-rundganges)
+
+## Die Tagsatzung in Frauenfeld
+
+Von 1712 bis 1798 fanden 71 ordentliche eidgenössische Tagsatzungen in Frauenfeld statt. In der letzten, im März 1798, wurde die Freilassung des Thurgaus beschlossen. Jährlich im Juli versammelten sich die Vertreter der dreizehn eidgenössischen Orte zur Tagsatzung. Das "Syndikat", bestehend aus den sieben Orten Uri, Schwyz, Unterwalden, Luzern, Zürich, Glarus und Zug und ab 1712 auch Bern prüfte die Jahrrrechnungen und die Amtsführung der von ihnen eingesetzten Landvögte und entschied in Streitfällen. Die Gesandten, ihre Weibel, Sekretäre und Knechte sowie Gäste fanden Unterkunft in der "Krone", im "Hirschen" und in privaten Bürgerhäusen. Das Luzerner-, Berner- und das Zürcherhaus tragen noch heute den Namen des Standes ihrer Gäste.
 [nach oben](#beschreibung-des-rundganges)
 
 
