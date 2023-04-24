@@ -4,6 +4,10 @@
 
 Die Karte [als eigene Seite](Altstadtrundgang.html).
 
+Begeben Sie sich auf einen Rundgang durch die Altstaft. Lernen Sie unsere Stadt etwas näher kennen, tauchen Sie ein in die Vergangenheit der Stadt. Los geht's beim Warzeichen, dem Schloss Frauenfeld
+
+**Übrigens:**  Versierte Stadtführerinnen und Stadtführer begleiten Sie gerne auf einem Rundgang durch die Frauenfelder Altstadt. Lassen Sie sich Hintergründe über die Architektur erklären und lustige Anekdoten aus naher und nicht alzu ferner Zeit erzählen Altstadtführungen und weiter spannende Führungen können bei Regio Frauenfeld Tourismus gebucht werden.
+
 ## Beschreibung des Rundganges
 
 1. [Schloss Frauenfeld](#schloss-frauenfeld)
