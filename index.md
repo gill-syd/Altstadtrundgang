@@ -24,7 +24,7 @@ Begeben Sie sich auf einen Rundgang durch die Altstadt. Lernen Sie unsere Stadt 
 12. [Brunnen an der Freiestrasse](#brunnen-an-der-freiestrasse)
 13. [Luzernerhaus](#luzernerhaus)
 14. [Gachnager Stock](#gachnager-stock)
-15. [Bernerhaus Zur Gedult](#bernerhaus-zur-gedul)
+15. [Bernerhaus Zur Gedult](#bernerhaus-zur-gedult)
 16. [Palme](#palme)
 17. [Krone](#krone)
 18. [Redinghaus](#redinghaus)
