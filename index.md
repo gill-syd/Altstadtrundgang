@@ -44,8 +44,11 @@ Begeben Sie sich auf einen Rundgang durch die Altstadt. Lernen Sie unsere Stadt 
 32. [Ehemals Thurgauer Zeitung](#ehemals-thurgauer-zeitung)
 33. [Regierungsgebäude des Kantons Thurgau](#regierungsgebäude-des-kantons-thurgau)
 34. [Guggenhürli](#guggenhürli)
-35. [Die Tagsatzung in Frauenfeld](#die-tagsatzung-in-frauenfeld)
-36. [Die Stadtbrände von 1771 und 1778](#die-stadtbrände-von-1771-und-1778)
+35. [Kantonsschule Frauenfeld](#kantonsschule-frauenfeld)
+36. [Home](#home)
+37. [Die Tagsatzung in Frauenfeld](#die-tagsatzung-in-frauenfeld)
+38. [Die Stadtbrände von 1771 und 1778](#die-stadtbrände-von-1771-und-1778)
+
 
 ## Schloss Frauenfeld
 
@@ -221,6 +224,16 @@ Erbaut 1866 bis 1868 von Joachim Brenner. 1935/36 Anbau des Südflügels durch A
 
 Das Guggenhürli liegt im Langdorf, auf einer kleinen Kuppe über dem gleichnamigen Rebberg. Das ehemalige Sommer- und Rebhaus wurde um 1580 von Hans Joachim Rüpplin, Vogt des Reichenauischen Amtes Frauenfeld, erbaut. Von 1838 bis 1871 war die Liegenschaft im Besitz von Minister Dr. Johann Conrad Kern (1808-1888), u.a. Redaktor der Bundesverfassung von 1848 und Schweizerischer Gesandter in Paris. 1966 übernahm eine Genossenschaft das Guggenhürli. Sie renovierte den Bau und legte einen Rebberg an.
 [nach oben](#beschreibung-des-rundganges)
+
+## Kantonsschule Frauenfeld
+Am 14. November 1853 wurde die neue Kantonsschule feierlich eröffnet. Stadtpräsident, Rektor, Erziehungsratspräsident und Regierungsratspräsident hielten Ansprachen und übergaben das Gebäude seiner Bestimmung. Im neuen Schulhaus befanden sich nicht nur die Unterrichtszimmer, sondern auch die Wohnungen von Rektor und Konviktführer, der Schlafsaal für 30 Schüler und weitere Räume wie Speisesaal, Vorratskammer und Arbeitsräume für die Konviktschüler. Unterrichtet wurden im ersten Semester 81 Schüler, davon wohnten 18 im Konvikt. Man teilte die Schüler nach ihrem Alter ungefähr in drei Gymnasial- und vier Industrieklassen ein. Das erste Schuljahr wurde mit sechs Lehrkräften
+[nach oben](#beschreibung-des-rundganges)
+
+## Home
+fdljs kölkjhös fdsdgvalökjh fgsdlöjk 
+[nach oben](#beschreibung-des-rundganges)
+
+eröffnet. Gründungsrektor wurde Dekan Ulrich Benker aus Diessenhofen, erster Konviktführer Johann Jakob Sulzberger, der von der Stadtschule Frauenfeld kam. Nachdem der Lehrunterricht aufgenommen wurde, stellte man fest, dass der Deutsch- und Geschichtslehrer für die oberen Klassen vergessen gegangen war. Dafür wählte die Behörde aus 69 Bewerbungen den jungen Stuttgarter Theologen Rudolf Menzel aus, der bereits auf Neujahr angestellt wurde.
 
 ## Die Tagsatzung in Frauenfeld
 
